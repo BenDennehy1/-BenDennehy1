@@ -1,2 +1,3 @@
 # -BenDennehy1
-for readme
+Adding a personal readme to my account :D
+Thank you for viewing!
